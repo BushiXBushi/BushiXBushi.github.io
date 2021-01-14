@@ -1,2 +1,2 @@
-# Xhuliano Bushi
+# BushiXBushi.github.io
 Personal Page
